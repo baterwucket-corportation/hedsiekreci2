@@ -1,4 +1,5 @@
-
+***ZARCHIWIZOWANE, ZOBACZ https://github.com/baterwucket-corportation/hedsiekreci2***
+*Nadeszla pora na HED SIE KRENCI 2 (Nazwa zmieniona na hedsiekreci z powodów oczywistych)*
 
 
 
