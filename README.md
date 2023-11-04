@@ -10,3 +10,4 @@
   </a>
 
   <h3 align="center">HedSieKreci 2</h3>
+  <p>i sie kreci</p>
